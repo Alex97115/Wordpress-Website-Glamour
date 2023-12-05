@@ -1,0 +1,1 @@
+Made this wordpress website as a contract, the activities of the website owner may be controversial, i was just hired to make the website.
